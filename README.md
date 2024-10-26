@@ -1,0 +1,6 @@
+- Vikas Chaurasiya
+-  MCA Student @GNDU
+-   Tech enthusiast
+-    coder
+-    lifelong learner
+  - Exploring the world of software development
